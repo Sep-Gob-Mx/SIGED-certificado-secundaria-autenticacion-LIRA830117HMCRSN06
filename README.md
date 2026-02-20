@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-LIRA830117HMCRSN06
+LIRA830117HMCRSN06
